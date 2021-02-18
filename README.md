@@ -1,4 +1,4 @@
-### Hi there, this profile is special because have this file :unicorn: :brazil:
+### Hi there :unicorn: :brazil:
 
 <!--
 **hilderjares/hilderjares** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
